@@ -1,0 +1,2 @@
+# BitcoinWalletmym
+FUCK OFF
